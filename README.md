@@ -1,2 +1,2 @@
 # tgwgl
-The Girl Who Got Lost
+When Uswa’s husband is murdered by her obsessed stalker, her life shatters into grief and paranoia. Haunted by shadows of the past and pursued by a predator who refuses to let go, Uswa must fight to reclaim her freedom before she vanishes into fear forever. Is she strong enough to outwit the darkness, or will she remain trapped in her stalker’s deadly obsession?
